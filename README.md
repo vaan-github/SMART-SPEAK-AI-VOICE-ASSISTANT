@@ -33,6 +33,7 @@ Thank you for exploring SmartSpeak! For any inquiries or contributions, feel fre
 See Page no. 90 on Book of Abstacts
 
 ---
+## NEW ISSUE : OPEN AI API IS PAID NOW !!!
 
 For more details, visit the [LinkedIn](https://www.linkedin.com/in/varma-aniket/).
 
